@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on cool projects
 - 🤔 I’m looking for help with any feature you can think of
 - 💬 Ask me about everything programming
-- 📫 How to reach me: http://divyanshgandhi.me
+- 📫 How to reach me: http://divyanshgandhi.com
 - 😄 Pronouns: He/Him, Geek, Nerd
 - ⚡ Fun fact: You can talk about anything with me.
 
